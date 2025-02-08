@@ -1,1 +1,1 @@
-# 120W Power Amp
+# 200W Power Amp
