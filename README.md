@@ -1,1 +1,1 @@
-# 200W Power Amp
+# 100W Power Amp
